@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... project's for computer science students or more 
 - 📫 How to reach me ... phone 0570373628
 - 😄 Pronouns: ... he/him
-- ⚡ Fun fact: ... i live sport and games
+- ⚡ Fun fact: ... i love sport and games
   
 
 <!---
